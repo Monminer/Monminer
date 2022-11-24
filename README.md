@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Monminer
+- 👀 I’m interested in cryptocurrencys
+- 🌱 I’m currently learning to mine crypto
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me vivanisanoob1234@gmail.com
